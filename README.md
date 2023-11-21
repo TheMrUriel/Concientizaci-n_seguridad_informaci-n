@@ -1,1 +1,1 @@
-# Concientizaci-n_seguridad_informaci-n
+# Concientizaci-n_seguridad_informacion
